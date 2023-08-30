@@ -7,4 +7,4 @@
 
 
 
-*⸸ he/him - infj - 16+*
+*⸸ he/him - infj - 15+*
