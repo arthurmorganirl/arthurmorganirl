@@ -1,6 +1,5 @@
-![](https://media.discordapp.net/attachments/1137135625619902556/1150494142888157184/169436952262244571.png?width=418&height=418)
+![](https://media.discordapp.net/attachments/1137143592910065725/1153455326562103346/ce513509e7736e7757527b6ba93c63a9.jpg?width=418&height=418)
 
-## ***Graves / Price +*** ![](https://media.discordapp.net/attachments/1148552719670452266/1149476944602222592/2f620826.gif)
-*or Ghost !*
+## ***Arthur / Graves +*** ![](https://media.discordapp.net/attachments/1148552719670452266/1149476944602222592/2f620826.gif)
 
 *⸸ he/him - infj - 15+*
