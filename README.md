@@ -1,4 +1,4 @@
-![](https://media.discordapp.net/attachments/1137135625619902556/1154978379066507334/0ccf65a7aaa656320ab6c642e7f6a5b1.jpg?width=545&height=468)
+![](https://media.discordapp.net/attachments/1137135625619902556/1154978919280287774/54ee5851b81b0f452f0ef077d42c5aaa.jpg)
 
 ## ***Arthur / Graves +*** ![](https://media.discordapp.net/attachments/1148552719670452266/1149476944602222592/2f620826.gif)
 
